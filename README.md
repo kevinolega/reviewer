@@ -78,3 +78,23 @@ Basic tools you need to survive in modern work.
 - Success is built from **small, consistent effort**.  
 - You only need **one good job offer** to change your life.
 
+
+## Free Resources
+
+* [Book: How to Survive Night Shift Schedule](https://callcentertrainingtips.com/night-shift-book)
+* [Book: How to build confidence: Small book of blessings](https://callcentertrainingtips.com/sbb-book/)
+
+
+## Live Practice Opportunity
+
+**Group Sessions**  
+Practice English with a small group of dedicated English learners.  
+Work on your grammar and pronunciation with a certified and experienced coach.  
+**Investment:** ₱352/month  
+👉 [Join here](https://callcentertrainingtips.com/group-sessions)
+
+**Practical Call Center Job Hunting Strategies**  
+A shy person’s guide on how to get hired in a call center.  
+Complete knowledge library, six months job-application support, live session.  
+**Investment:** ₱1,667  
+👉 [Learn more](https://callcentertrainingtips.com/shy-book)
