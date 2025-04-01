@@ -78,11 +78,29 @@ Basic tools you need to survive in modern work.
 - Success is built from **small, consistent effort**.  
 - You only need **one good job offer** to change your life.
 
+## Quick Links
+
+* [My Website](https://callcentertrainingtips.com)
+* [Library of all my free lessons](https://callcentertrainingtips.com/archive)
+* [My YouTube Channel](https://youtube.com/callcentertrainingtips)
+* [My Facebook Page](https://facebook.com/callcentertrainingtips)
+* [My Facebook Group](https://facebook.com/groups/callcentertrainingtips)
+* [My Instagram](https://instagram.com/cctrainingtips)
+* [My Twitter](https://twitter.com/cctrainingtips)
+* [My TikTok](https://tiktok.com/cctrainingtips)
+* [For newly hired call center agents](https://callcentertrainingtips.com/hired)
+* [Online Freelancer Tips](https://callcentertrainingtips.com/upwork)
+* [My personal newsletter](https://sendfox.com/kevinolega)
+* [What I'm doing now](https://sendfox.com/kevinolega)
 
 ## Free Resources
 
 * [Book: How to Survive Night Shift Schedule](https://callcentertrainingtips.com/night-shift-book)
 * [Book: How to build confidence: Small book of blessings](https://callcentertrainingtips.com/sbb-book/)
+* [Mini-Email Course: Free English Lessons](https://sendfox.com/lp/10wpzx)
+* [Grammar Tips For Adults](https://callcentertrainingtips.com/adult-grammar/)
+* [Complete Your Sentences](https://callcentertrainingtips.com/complete-sentence)
+* [Capitalization and Punctuation](https://callcentertrainingtips.com/capitalization-punctuation)
 
 
 ## Live Practice Opportunity
