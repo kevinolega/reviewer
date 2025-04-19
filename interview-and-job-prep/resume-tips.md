@@ -2,6 +2,8 @@ resume-tips.md
 
 ---
 
+_Want a high-paying call center or BPO job? Your resume is key. [Get my free resume guide here.](https://callcentertrainingtips.com/call-center-resume/)_
+
 ---
 
 ## **Best Resume Format for Call Center Job Applications**
@@ -165,3 +167,11 @@ Use these openers:
 - Print 30 copies for walk-ins (on clean bond paper)  
 - Use your resume as a conversation tool  
 - Keep a master resume and customize for each job
+
+---
+
+**Ready to unlock better opportunities in call centers, customer service, technical support, and BPO?**
+
+My free, step-by-step resume guide shows you exactly how to build a resume that hiring managers notice.
+
+[**Click here for free access to the complete resume guide**](https://callcentertrainingtips.com/call-center-resume/)
