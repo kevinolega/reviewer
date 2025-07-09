@@ -1,13 +1,7 @@
 # **Call Center Job Application Reviewer**
 
-This is a free, self-study guide for people preparing for call center work — especially those who:
 
-- Didn’t finish college  
-- Had to stop working due to family emergencies, financial issues, or personal struggles  
-- Are stuck in low-paying jobs and want to move up  
-- Are switching careers or restarting after failure  
-
----
+Update: As of 2025-07-08 I have created a downloadable version of the free reviewer. [Download Here](https://drive.google.com/drive/folders/1X5dQD0UAlcSFryPpaFw4-ethf6mZc-lA?usp=drive_link)
 
 ## **How to Use This Reviewer**
 
